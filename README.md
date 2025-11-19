@@ -1,1 +1,1 @@
-# Askarul-Alisheer
+Daryn Auezkhan
